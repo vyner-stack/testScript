@@ -1,0 +1,1 @@
+Bang Jack Punya Cari Apa haaaa hehehe
